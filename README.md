@@ -1,2 +1,0 @@
-# Diamantes-
-Diamantes e contas
